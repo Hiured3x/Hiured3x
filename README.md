@@ -5,6 +5,7 @@ Meu Nome é Hiúre e eu sou um estudante de Engenharia de Produção na Universi
 ° 🛰️ Juazeiro do Norte, Ceará
 
 ° 📧 Você pode me contatar pelo Email
+
 hiured3x.matos@urca.br
 
 ° 🧠 Estou Atualmente Cursando Engenharia de Produção
