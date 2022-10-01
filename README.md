@@ -1,15 +1,15 @@
 ### Opa! Me chamo Hiúre 🤙
 
-Meu Nome é Hiúre e eu sou um estudante de Engenharia de Produção na Universidade Regional do Cariri. Tenho 17 anos sempre me interessei pela área das Exatas e pela Engenharia. Fui aprovado em 5 Universidades aos 16 anos, entre elas, Ciência da Computação (Univasf), Analise e Desenvolvimento de Sistemas (UFCA) e Direito (FACISA). Eu tambéo possuo interesse em áreas como a programação e a Fotografia. Você pode encontrar minhas fotos no Vsco e no Instagram! 
+Meu nome é Hiúre e eu sou um estudante de Engenharia de Produção na Universidade Regional do Cariri. Tenho 17 anos sempre me interessei pela área das Exatas e pela Engenharia. Fui aprovado em 5 Universidades aos 16 anos, entre elas, Ciência da Computação (Univasf), Analise e Desenvolvimento de Sistemas (UFCA) e Direito (FACISA). Eu também possuo interesse em áreas como a programação e a Fotografia. Você pode encontrar minhas fotos no Vsco e no Instagram! 
 
 ° 🛰️ Juazeiro do Norte, Ceará
 
 ° 📧  Email para contato:
 heroneder2@gmail.com
 
-° 🧠 Estou Atualmente Cursando Engenharia de Produção
+° 🧠 Estou Atualmente cursando Engenharia de Produção
 
-° 💻 Meu equipamento para Fotografias: Acer Nitro 5, Sv28, Sv105, S20fe
+° 💻 Meu equipamento para fotografia: Acer Nitro 5, Sv28, Sv105, S20fe
 
  
 
