@@ -20,3 +20,7 @@ heroneder2@gmail.com
 
 
 ![Hiure D3x's GitHub stats](https://github-readme-stats.vercel.app/api?username=hiured3x&show_icons=true&theme=tokyonight)
+
+[![Blog](https://img.shields.io/github/followers/{Hiured3x}.svg?style=social&label=Follow&maxAge=2592000)](https://github.com/Hiured3x)
+
+[![Blog](https://img.shields.io/badge/picpay-21C25E?style=for-the-badge&logo=picpay&logoColor=white)](@Hero.Neder)
